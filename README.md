@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... TBA.
 - 📫 How to reach me ... No need, read my books The Chronicles of Credon which will soon to be released.
 - 😄 Pronouns: ... are unneeded.
-- ⚡ Fun fact: ... I am a gamer and a SONY fanboy!
+- ⚡ Fun fact: ... I am a very active gamer and a lifelong Nintendo and SONY fanboy!
 
 <!---
 CredonNetwork/CredonNetwork is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
